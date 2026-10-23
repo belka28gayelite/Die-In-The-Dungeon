@@ -240,4 +240,4 @@ Die in the Dungeon is the full free version, which means all features and update
 Get ready to roll the dice and face the dungeons! Download Die in the Dungeon now and embark on your thrilling adventure!
 
 ---
-**Last updated:** 2026-10-22 22:51:30 UTC
+**Last updated:** 2026-10-23 01:05:36 UTC
